@@ -19,3 +19,5 @@
 #[Atividade 4](https://trello.com/invite/b/CZbbc4G3/ATTI8610a3036f19f49b66e61238d5ed0f740DDCEE24/organizacao-do-professor-para-fluxo-hibrido-na-escola)
 
 #[Atividade 5](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+#[Atividade 6](https://miro.com/app/board/uXjVKF3DJpg=/?share_link_id=734341793363)

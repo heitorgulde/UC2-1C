@@ -21,3 +21,5 @@
 #[Atividade 5](https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 #[Atividade 6](https://miro.com/app/board/uXjVKF3DJpg=/?share_link_id=734341793363)
+
+#[Atividade 7](https://docs.google.com/document/d/1NpOBWtD9tdP_-FmRaHdVWqx-yPh2wvEniOsqHaQafrs/edit?usp=sharing)

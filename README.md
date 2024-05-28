@@ -23,3 +23,5 @@
 #[Atividade 6](https://miro.com/app/board/uXjVKF3DJpg=/?share_link_id=734341793363)
 
 #[Atividade 7](https://docs.google.com/document/d/1NpOBWtD9tdP_-FmRaHdVWqx-yPh2wvEniOsqHaQafrs/edit?usp=sharing)
+
+#[Atividade 8](https://docs.google.com/spreadsheets/d/1SP75UJiTZv9OlCOmtUs-o3se2I6k_v7P_4_zGnkUV18/edit?usp=sharing)
